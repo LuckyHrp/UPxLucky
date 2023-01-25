@@ -1,2 +1,1 @@
-bewan dekkk 
-hasbi ganteng
+2youu famm
