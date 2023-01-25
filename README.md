@@ -1,3 +1,2 @@
-# UPxLucky
+bewan dekkk 
 
-tama ganteng banget
